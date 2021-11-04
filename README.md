@@ -1,6 +1,6 @@
 # 🔗 CryptoSheinix Referral Links
 
-👋 Todos los links en esta pagina son links de referidos, lo que significa que por registrarte con ellos a mi me estan pagando un pequeño aporte. Puedes registrarte con un link normal si asi lo deseas, pero si quieres ayudarme a mi y a el canal, puedes utilizar estos links:
+👋 Todos los links en esta pagina son links de referidos, lo que significa que por registrarte con ellos a mi me estan pagando un pequeño aporte. Puedes registrarte con un link normal si asi lo deseas, pero si quieres ayudarme a mi y a [el canal](https://www.youtube.com/channel/UC423qnRwiJf4fLKAQ6Tlofg/), puedes utilizar estos links:
 
 ## 📈 Crypto Trading
 
