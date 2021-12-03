@@ -7,7 +7,7 @@
 🔥 **CRIPTO TRADING y Copytrading con Prime XBT.**  🔥.
 👉 [PrimeXBT](https://bit.ly/3BLmH0W) 
 
-🔥 **Tradea Criptos facilmente en Huobi.** 🔥.
+🔥 **Tradea Criptos facilmente en Huobi.**  🔥.
 👉 [Huobi Exchange](https://www.huobi.com/en-us/topic/double-reward/?invite_code=9zdx3223) 
 
 🔥 **Gana HASTA $250USD de BONUS en BLOCKFI y empieza a generar  INGRESOS PASIVOS con BlockFi** 🔥.  
