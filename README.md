@@ -49,4 +49,4 @@ __La manera MAS SEGURA de PROTEGER TU DINERO es con una hardware wallet!__
 👉   [Brave Browser](https://brave.com/itf854)
 
 🔝  **Polkadot: Aporta a la crowdloan de Centrifuge con este Link!**    
-👉   [Brave Browser](https://brave.com/itf854)
+👉   [Centrifuge Crowdloan](https://brave.com/itf854)
