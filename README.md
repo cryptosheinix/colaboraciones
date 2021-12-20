@@ -35,6 +35,9 @@
 
 ## 🚀 Colaboraciones Cripto
 
+🤑  **Gana retornos en DeFi con KAVA Gema DeFi de Cosmos**    
+👉   [Kava DeFi](https://bit.ly/3H2wr9M)
+
 ⚽️  **SORARE: GANA DINERO con JUEGO de FUTBOL de FANTASIA NFTS**⚽.  
 👉   [Sorare NFT Game](https://sorare.pxf.io/cryptosheinix)  
 
@@ -43,4 +46,7 @@ __La manera MAS SEGURA de PROTEGER TU DINERO es con una hardware wallet!__
 **Ledger Nano** 👉   [Compra Nano Ledger Aqui](https://shop.ledger.com/?r=6966625b72c9)
 
 💸  **Utiliza el Navegador BRAVE y GANA DINERO mirando publicidad!**    
+👉   [Brave Browser](https://brave.com/itf854)
+
+🔝  **Polkadot: Aporta a la crowdloan de Centrifuge con este Link!**    
 👉   [Brave Browser](https://brave.com/itf854)
