@@ -4,8 +4,11 @@
 
 ## 📈 Crypto Trading
 
-🔥 **CRIPTO TRADING y Copytrading con Prime XBT.**  🔥.
-👉 [PrimeXBT](https://bit.ly/3BLmH0W) 
+🔥 **Tradea simple y seguro con Phemex!**  🔥.
+👉 [Phemex Exchange](https://phemex.com/es/register?referralCode=FRS5H3)
+
+🔥 **Cripto Trading y Copytrading con Prime XBT.**  🔥.
+👉 [PrimeXBT Exchange](https://bit.ly/3BLmH0W) 
 
 🔥 **Tradea Criptos facilmente en Huobi.**  🔥.
 👉 [Huobi Exchange](https://www.huobi.com/en-us/topic/double-reward/?invite_code=9zdx3223) 
