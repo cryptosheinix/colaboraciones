@@ -3,8 +3,8 @@
 👋 Todos los links en esta pagina son links de referidos, lo que significa que por registrarte con ellos a mi me estan pagando un pequeño aporte. Puedes registrarte con un link normal si asi lo deseas, pero si quieres ayudarme a mi y a [el canal](https://www.youtube.com/channel/UC423qnRwiJf4fLKAQ6Tlofg/), puedes utilizar estos links. No te olvides de revisar los [links oficiales](https://github.com/cryptosheinix/community-solidity) de nuestra comunidad!
 
 ## ⭐️ Gold Partners
-👉 [Obtén tu cripto dominio una promo credito de $40usd](https://get.unstoppabledomains.com/cryptosheinix/?irclickid=SE8QvYR4AxyITgVTtF0KkW%3ALUkGQviT9tziB2g0&irpid=2786333&irgwc=1)
-👉 [Tradea simple y seguro con Phemex Exchange](https://phemex.com/es/register?referralCode=FRS5H3)
+👉 [Obtén tu cripto dominio una promo credito de $40usd](https://get.unstoppabledomains.com/cryptosheinix/?irclickid=SE8QvYR4AxyITgVTtF0KkW%3ALUkGQviT9tziB2g0&irpid=2786333&irgwc=1).   
+👉 [Tradea simple y seguro con Phemex Exchange](https://phemex.com/es/register?referralCode=FRS5H3).   
 👉 [Opera con Cripto todo en un solo lugar con Atani Software](https://atani.com/?r=CryptoSheinix)
 
 
