@@ -2,9 +2,10 @@
 👋 Todos los links en esta pagina son links de referidos, lo que significa que por registrarte con ellos a mi me estan pagando un pequeño aporte. Puedes registrarte con un link normal si asi lo deseas, pero si quieres ayudarme a mi y a [el canal](https://www.youtube.com/channel/UC423qnRwiJf4fLKAQ6Tlofg/), puedes utilizar estos links. No te olvides de revisar los [links oficiales](https://github.com/cryptosheinix/community-solidity) de nuestra comunidad!
 
 
-## 📈 Crypto Trading
+## 📈 Crypto Exchanges (Centralizados)
 👉 Opera con Cripto todo en un solo lugar con [Atani Software](https://atani.com/?r=CryptoSheinix).  
-👉 Tradea simple y seguro con [Phemex Exchange](https://phemex.com/es/register?referralCode=FRS5H3).   
+👉 [Bitget Exchange](https://partner.bitget.com/bg/F31UQR).   
+👉 [Phemex Exchange](https://phemex.com/es/register?referralCode=FRS5H3).   
 👉 [Huobi Exchange](https://www.huobi.com/en-us/topic/double-reward/?invite_code=9zdx3223).  
 👉 [Binance Exchange](https://www.binance.com/es/register?ref=Y3XE8EA3).  
 👉 [OKex Exchange](https://www.okex.com/join/6169845).  
